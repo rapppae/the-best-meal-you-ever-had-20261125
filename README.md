@@ -4,7 +4,7 @@
 
 Entry for the make.fun bounty [The Best Meal You Ever Had](https://make.fun/bounty/u-pangg7-the-best-meal-you-ever-had-a3ac0f85).
 
-> The best meal I ever had was my grandmother's fried rice at midnight, eaten straight from the wok while rain drummed the roof and nobody told me to use a plate.
+> Grandma's fried rice at midnight, eaten straight from the wok as rain drummed the roof - no plate, no manners, just smoke, chili, and the best meal of my life.
 
 ## Run
 
